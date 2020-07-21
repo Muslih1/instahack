@@ -1,2 +1,0 @@
-# instahack
-Instagram hack
